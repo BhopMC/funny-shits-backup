@@ -15,7 +15,7 @@ https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratt
 
 ![exposed for being a pedo.](https://i.imgur.com/MDaOynO.png)
 
-(imgur gallery: https://imgur.com/a/YzE1WSm)
+[imgur gallery](https://imgur.com/a/YzE1WSm)
 
 # Discord nuked
 ![Their discord being nuked.](https://i.imgur.com/HyCJzNZ.png)
