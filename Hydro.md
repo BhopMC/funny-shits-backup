@@ -2,7 +2,7 @@ Explains everything:
 https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratting_token_logging/
 
 
-![Eternity [Announcement] - About db breach.](https://jays.host/4423eaa0.png)
+![Eternity [Announcement] - About db breach.](https://jays.host/i/4423eaa0.png)
 
 Mostlikely going to exit scam:
 
