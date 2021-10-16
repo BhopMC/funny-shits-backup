@@ -1,4 +1,4 @@
-#Hydro being exposed for ratting
+# Hydro being exposed for ratting
 https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratting_token_logging/
 
 #Database breach
