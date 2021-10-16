@@ -10,8 +10,11 @@ https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratt
 # Owner exposed for being a pedo
 "great another predator in the community, owner of Hydro clicker, made past edits for various big youtubers. the contestant name is Dewplexy / Richard who i believe is currently 19 tryna lie to underage girls hes 15!" https://twitter.com/realnelier1
 ![exposed for being a pedo.](https://i.imgur.com/oCL0aRq.png)
+
 ![exposed for being a pedo.](https://i.imgur.com/WmdLaQj.png)
+
 ![exposed for being a pedo.](https://i.imgur.com/MDaOynO.png)
+
 (imgur gallery: https://imgur.com/a/YzE1WSm)
 
 # Discord nuked
