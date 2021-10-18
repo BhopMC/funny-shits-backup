@@ -24,6 +24,9 @@ https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratt
 "selling hydro & leaving so ig i’m not sure" https://twitter.com/igngolden
 ![Selling hydro and want's to dip.](https://i.imgur.com/LRJLW3C.png)
 
+# Trying to get people to their new discord:
+![photo](https://jays.host/i/65f25929.png)
+
 # Staff discords:
 * R............#0001 - 439476236562071574 - Dewplexy [Owner]
 * Richy#9990 - 630048432358162442 - Alone [Manager]
@@ -31,3 +34,4 @@ https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratt
 Updates:
 * Posted on 16/10 10:12.
 * 18/10 16:27 - Added "Staff discords".
+* 18/10 16:29 - Added "Trying to get people to their new discord"
