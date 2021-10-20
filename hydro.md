@@ -31,6 +31,9 @@ https://www.reddit.com/r/ghostclient/comments/q5u4nv/the_end_of_hydrocheats_ratt
 * R............#0001 - 439476236562071574 - Dewplexy [Owner]
 * Richy#9990 - 630048432358162442 - Alone [Manager]
 
+# Dexplexy jokes about Pedophilia:
+![jokes about pedos.](https://jays.host/i/101a3e02.png)
+
 Updates:
 * Posted on 16/10 10:12.
 * 18/10 16:27 - Added "Staff discords".
